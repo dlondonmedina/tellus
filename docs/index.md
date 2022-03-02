@@ -98,3 +98,11 @@ Unfortunately, the general public hadn't learned much during the Crisis and the 
 
 
 ## Chapter 6 (Section B)
+
+As the groups gain further control over their regions alliances begin to form. District one, in the mountain region, opens an alliance with Group Two to exchange technology and services for treatment and expertise. Thalassa Institute has also established ties with District One and Group two. Group four is also engaged. It's impressive the degree of collaboration that can occur in desperate times, and while these alliances begin to form, alliances, these are desperate times. Food stores are running low and trade must be established with outside nations for longterm wellbeing of the nation.
+
+One day not long after formal partnerships were established between the groups, posts on social media started to appear from an organization called the One World Collective. One post read, *What do we really now about what happens at the Thalassa Institute?* It was paired with a drawing of animal models from a medical research lab from before the Crisis. Another post read *District One is an oligarchy! Free our resources!* Yet another complained about the mysterious illness that had surfaced in recent weeks that Group Two was working hard to contain. However, the One World Collective was most critical of Group 4 and its ties to the old government. *Down with fascists* they posted regularly with various unironic pictures from the Crisis that had survived the Panic.
+
+Technicians from District One and the Thalassa Institute traced the messages to a remote region across the great sea in Dylandia. Researchers quickly discovered that an individual called Anthony Power had been sowing dissent in Dylandia as well. Power had been wealthy prior to the Crisis as the heir of an arms manufacturing empire, and while most industries collapsed during the Crisis and Panic, arms manufacturing thrived. This was unfortunate, but true. Power had hidden through most of the upheaval but he was returning now with a hope of conquering Dylandia.
+
+Your hope to solve the food shortages and the fake news campaign undermining the fragile order is to establish a central order so that trade can be established. At the same time, you must deconstruct the propaganda campaign coming from the One World Collective and retain the support of the population. 
